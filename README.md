@@ -1,2 +1,2 @@
-# homework
+# Liza Pshenyanik
 DZ
